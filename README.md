@@ -1,6 +1,6 @@
 # BinyK.github.io
 
-Portfolio (3D Modeling, Level Design)
+Portfolio (2D Artist, 3D Modeling, Level Design)
 
 Google Drive Link: https://drive.google.com/drive/folders/12wm_jZY-Bx8QIYOVl1s_rGs6YhPOEBCe?usp=drive_link
 
